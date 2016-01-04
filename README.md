@@ -8,5 +8,3 @@
 you can use this in PERSONAL situation.   
 This is NOT for commercial.  
 
-
-何か問題があり次第削除します。  
